@@ -1,5 +1,1 @@
-hello zian
- kaisa hai tu??
-thoda kuch changes kar ke de na please
-babu shona
-/nOkay sainath, yeh le changes karke diya tujhe
+Bhai, question 3 ke steps bhej, agar tera set 7 hai to
